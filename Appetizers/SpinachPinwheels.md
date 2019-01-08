@@ -10,6 +10,7 @@ UNITS: US
 
 **INGREDIENTS**
 
+* 1/2 cup butter milk
 * 2 (10 ounce) packages frozen chopped spinach, thawed drained & squeezed dry in paper towels
 * 1 (8 ounce) package cream cheese, softened
 * 1⁄2 cup mayonnaise
